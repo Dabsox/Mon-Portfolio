@@ -124,6 +124,6 @@
 ---
 
 _Portfolio en construction - Janvier 2025_  
-_Dernière mise à jour : 20/01/2025_
+_Dernière mise à jour : 24/01/2026_
 
 ⭐ **N'hésitez pas à me contacter pour échanger !**
